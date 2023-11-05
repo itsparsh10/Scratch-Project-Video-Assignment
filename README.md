@@ -4,7 +4,7 @@
 
 
 
-Scratch Video Link :
+Scratch Video Link : https://drive.google.com/file/d/1-DNS1hX6DYL0R4UmtWP-m3nu3owVXMA-/view?usp=sharing
 
 
 Whole Drive Link : https://drive.google.com/drive/folders/1ptsvmkhaBITxG4tQvsRLVc5Y9u0ZjdOi?usp=drive_link
